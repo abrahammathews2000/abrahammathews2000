@@ -1,4 +1,4 @@
-# Hi all 😄 . 
+# Hi Everyone 😄  
 
 ## I am Abraham Mathews.
 <!--
